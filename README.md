@@ -1,3 +1,3 @@
-FooCoin (FOO)
+Digital Gold Nugget (DGN)
 
-Blah, blah, blah.
+More info soon.
